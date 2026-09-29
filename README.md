@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CASC790401MVZSNL06
+CASC790401MVZSNL06
